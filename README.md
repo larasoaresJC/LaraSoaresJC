@@ -6,6 +6,6 @@ Meu nome é Lara!
 - Utilizo este espaço para minha organização e compartilhamento dos meus projetos 
 
 ### Você pode entrar em contato comigo pelo 📮
-- 0001112668147so@al.educacao.sp.gov.br
+- 0001112668147sp@al.educacao.sp.gov.br
 
 ![](https://media.tenor.com/zl36od50shYAAAAM/friends-friendstv.gif)
